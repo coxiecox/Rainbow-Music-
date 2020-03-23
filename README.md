@@ -1,2 +1,1 @@
-# Rainbow-Music-
-Rainbow Music 
+My little app Rainbow Music. (My first app) could sure do with the help (and it’s rainbow themed). https://apps.apple.com/gb/app/rainbow-music/id1480435488  promo code EWYNF4LXREE9. Whichever apps you pick I think it’s a great idea. Thanks for all you do, David 
